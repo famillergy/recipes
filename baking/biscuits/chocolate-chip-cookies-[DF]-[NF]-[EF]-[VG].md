@@ -33,3 +33,7 @@ spoon.
 
 - We use rice milk instead of soy milk, and it comes out a bit more nutty flavoured
 - For Dairy-free chocolate in New Zealand, we use Whittakers Dark Chocolate and break up the block into pieces and then cut up the pieces.
+
+## Credit
+
+- Thanks to Olivia at Ataliay for the original recipe: http://www.atiliay.com/best-chewy-chocolate-chip-cookies-ever/
