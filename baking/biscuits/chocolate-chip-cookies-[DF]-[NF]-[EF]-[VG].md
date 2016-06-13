@@ -10,7 +10,7 @@ Dairy Free, Nut Free, Egg Free, Vegan.
 - 12 oz/340 grams dairy-free chocolate chips
 
 In a medium bowl place the creamy ingredients:
-- 1 cup of softened margarine
+- 1 cup of softened olive margarine
 - 1/2 cup brown sugar
 - 1/2 cup sugar
 
